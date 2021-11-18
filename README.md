@@ -1,1 +1,0 @@
-# hindi-magaling-magcode
